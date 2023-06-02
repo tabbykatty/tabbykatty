@@ -6,7 +6,6 @@
 - 💞️ I’m looking to collaborate on anything! I have a background in social sciences and marine sciences, and am endlessly curious 
 - 📫 Click on my [Link Tree](https://linktr.ee/tjkeefer) for all my socials 🦝
 
-#### Here's a sample of my artwork 
 #### Feel free to check out my Flickr Gallery in my [Link Tree](https://linktr.ee/tjkeefer). 
 
 
