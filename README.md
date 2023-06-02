@@ -9,7 +9,7 @@
 #### Here's a sample of my artwork 
 #### Feel free to check out my Flickr Gallery in my [Link Tree](https://linktr.ee/tjkeefer). 
 
-![Moody photo of fairy lights strung in trees, taken horizontal to the Earth floor.](https://www.flickr.com/photos/196744521@N04/52433739139/in/album-72177720302961173/)
+
 
 
 <!---
