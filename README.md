@@ -4,9 +4,9 @@
 - 👀 I love anything PNW and my pets  🐶
 - 🌱 I’m learning R, SQL, and next on my list is Python & HTML
 - 💞️ I’m looking to collaborate on anything! I have a background in social sciences and marine sciences, and am endlessly curious 
-- 📫 Click on my [Link Tree](https://linktr.ee/tjkeefer) for all my socials 🦝
+- 📫 Click on my [Link Tree](https://linktr.ee/tjkeefer96) for all my socials 🦝
 
-#### Feel free to check out my Flickr Gallery in my [Link Tree](https://linktr.ee/tjkeefer). 
+#### Feel free to check out my Flickr Gallery in my [Link Tree](https://linktr.ee/tjkeefer96). 
 
 <br>
 
